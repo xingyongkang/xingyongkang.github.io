@@ -1,2 +1,0 @@
-# xing yongkang' homepage
-
